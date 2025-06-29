@@ -1,3 +1,3 @@
-random's submission for boba drop
+submission for boba drop
 
 # oiia
